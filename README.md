@@ -1,4 +1,4 @@
-<font size=4>
+<font size=8>
 On seeing the 100% perfect girl on beautiful days, from Xmas to New Year, 22.12.2017 — 2018
 
 One noon, on a street in Beijing's Wangjing neighborhood, I met the 100% perfect girl. She isn't young, either - near thirty, not even close to a "girl," properly speaking. But still, I know from ten yards away: She's the 100% perfect girl for me. 
@@ -21,6 +21,8 @@ Maybe you have your own particular favorite type of girl - one with slim ankles,
 
 
 ![右边的那个女生就是她](http://upload-images.jianshu.io/upload_images/4363003-2490c5d484778ae3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+右边的那个女生就是她
 
 
 我之所以对她那么着迷，除了她的样子以外，还有她讲话时的神态和气质，更因为她的思想。在交谈中，可以明显感受到她的独立、勇气、远见。我觉得自己算是一个“阅人无数”的人，这次真的让我倾倒。第一次见面之后，我们当然继续聊了很多。
