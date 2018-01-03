@@ -12,7 +12,8 @@ Maybe you have your own particular favorite type of girl - one with slim ankles,
 
 我之前在国外读书、工作，现在在百度作研发工程师。下面第三方平台的介绍光鲜亮丽，但是千万不要被误导。我真的就是一个普通不能再普通的码农。
 
-![image.png](http://upload-images.jianshu.io/upload_images/4363003-d135ec4f15756946.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![image.png](http://upload-images.jianshu.io/upload_images/4363003-644929d9dc562a52.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
 
 ![右边的那个女生就是她](http://upload-images.jianshu.io/upload_images/4363003-2490c5d484778ae3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
