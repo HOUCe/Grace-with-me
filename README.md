@@ -1,3 +1,4 @@
+<font size=4>
 On seeing the 100% perfect girl on beautiful days, from Xmas to New Year, 22.12.2017 — 2018
 
 One noon, on a street in Beijing's Wangjing neighborhood, I met the 100% perfect girl. She isn't young, either - near thirty, not even close to a "girl," properly speaking. But still, I know from ten yards away: She's the 100% perfect girl for me. 
@@ -161,3 +162,4 @@ Without a word, they passed each other, disappearing into the crowd.
 Forever. 　
 
 A sad story, don't you think?　
+</font>
