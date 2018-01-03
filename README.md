@@ -12,6 +12,12 @@ Maybe you have your own particular favorite type of girl - one with slim ankles,
 
 我之前在国外读书、工作，现在在百度作研发工程师。下面第三方平台的介绍光鲜亮丽，但是千万不要被误导。我真的就是一个普通不能再普通的码农。
 
+>现就职于百度知识搜索部：主导多个产品线大型技术迭代；
+曾工作在巴黎，就职于法国能源和苏伊士集团：负责欧洲天然气运输和费用系统；
+曾就职于巴黎银行，负责投行征信系统；
+曾就职于硅谷和巴黎互联网BePATIENT集团，负责跨端互联网开发。
+著有多项书籍、专注、论文；行业之外，国家二级运动员，钢琴发烧友，并发起组织多项人文项目，赴北非撒哈拉地区发起孤儿关怀活动。旅行达人、极限运动爱好者。
+
 ![image.png](http://upload-images.jianshu.io/upload_images/4363003-644929d9dc562a52.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 
